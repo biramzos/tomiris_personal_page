@@ -1,1 +1,0 @@
-# tomiris_personal_page
